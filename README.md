@@ -1,1 +1,1 @@
-# The-Amazon-Case-Study
+# The Amazon Case Study
